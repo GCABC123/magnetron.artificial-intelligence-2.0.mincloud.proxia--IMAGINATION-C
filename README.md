@@ -1,4 +1,4 @@
-# -magnetron.artificial-intelligence-2.0.mincloud.proxia--IMAGINATION-C-text-video-
+# -magnetron.artificial-intelligence-2.0.mincloud.proxia--IMAGINATION-1
  
 THE ABC 123 GROUP ™:
 
@@ -14,7 +14,7 @@ THE ABC 123 GROUP ™:
 
                      MAGENTRON
                      
-ARTIFICIAL INTELLIGENCE 2.0 ™ : IMAGINATION PROXIA C (IMAGE & VIDEO from text)
+ARTIFICIAL INTELLIGENCE 2.0 ™ : IMAGINATION PROXIA A (IMAGE & VIDEO from text)
 
 *️⃣📶🤖
 
