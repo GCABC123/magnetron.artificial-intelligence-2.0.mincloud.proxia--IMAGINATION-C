@@ -30,7 +30,8 @@ REQUIREMENTS:
 
 This is a Google Colab/Jupyter Notebook for (one possible scheme in) developing an IMAGINATION proxia (that outputs video and images) when working with ARTIFICIAL INTELLIGENCE 2.0 ™ 
 (ARTIFICIAL INTELLIGENCE 2.0™ is part of MAGNETRON ™ TECHNOLOGY). The machine running the Notebook will be a MINDCLOUD on which you will be
-developing a PROXIA.
+developing a PROXIA. 
+e.g On an ASTRAL MINDCLOUD this PROXIA can be used to process INFORMATION from an INSTINCTIVE MIND PROXIA/MINDCLOUD (OBJECT DETECTION). So for example if the ROBOT detects a cup with the OBJECT DETECTION on the INSTINCTIVE MIND MINDCLOUD it can imagine a cup in some typical or unusual scenarios to better understand what it is and how humans see it.
 
 Prerequisite reading:
 
