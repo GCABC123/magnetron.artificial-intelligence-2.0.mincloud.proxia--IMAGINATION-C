@@ -28,7 +28,7 @@ REQUIREMENTS:
 
 =============================================================
 
-This is a Google Colab/Jupyter Notebook for developing an IMAGINATION proxia (that outputs video and images) when working with ARTIFICIAL INTELLIGENCE 2.0 ™ 
+This is a Google Colab/Jupyter Notebook for (one possible scheme in) developing an IMAGINATION proxia (that outputs video and images) when working with ARTIFICIAL INTELLIGENCE 2.0 ™ 
 (ARTIFICIAL INTELLIGENCE 2.0™ is part of MAGNETRON ™ TECHNOLOGY). The machine running the Notebook will be a MINDCLOUD on which you will be
 developing a PROXIA.
 
