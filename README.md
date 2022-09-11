@@ -41,6 +41,8 @@ Prerequisite reading:
 👑 
 INCLUDED STICKERS/SIGN:
 
+FIND STICKERS HERE: https://bit.ly/3B8D3lE
+
 - PROMOTIONAL MATERIAL FOR 𝗠𝗔𝗚𝗡𝗘𝗧𝗥𝗢𝗡 𝗧𝗘𝗖𝗛𝗡𝗢𝗟𝗢𝗚𝗬 ™. (CUSTOM GRAPHICS BY 𝗔𝗕𝗖 𝟭𝟮𝟯 𝗗𝗘𝗦𝗬𝗚𝗡 ™/𝗢𝗦𝗔𝗥𝗢 𝗛𝗔𝗥𝗥𝗜𝗢𝗧𝗧). THE 𝗠𝗔𝗚𝗡𝗘𝗧𝗥𝗢𝗡 𝗧𝗘𝗖𝗛𝗡𝗢𝗟𝗢𝗚𝗬 ™  SYMBOL/LOGO IS A TRADEMARK OF 𝗧𝗛𝗘 𝗔𝗕𝗖 𝟭𝟮𝟯 𝗚𝗥𝗢𝗨𝗣 ™ FOR 𝗠𝗔𝗚𝗡𝗘𝗧𝗥𝗢𝗡 𝗧𝗘𝗖𝗛𝗡𝗢𝗟𝗢𝗚𝗬 ™. 𝗧𝗛𝗘 𝗔𝗕𝗖 𝟭𝟮𝟯 𝗚𝗥𝗢𝗨𝗣 ™ SYMBOL/LOGO IS A TRADEMARK OF 𝗧𝗛𝗘 𝗔𝗕𝗖 𝟭𝟮𝟯 𝗚𝗥𝗢𝗨𝗣 ™.
 
 *️⃣📶🤖
