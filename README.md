@@ -2,19 +2,19 @@
  
 THE ABC 123 GROUP ™:
 
-- GENERAL CONSULTING ABC 123 BY OSAROPRIME ™.
+🌐 GENERAL CONSULTING ABC 123 BY OSAROPRIME ™.
 
-- ABC 123 USA ™
+🌐 ABC 123 USA ™
 
-- ABC 123 DESYGN ™
+🌐 ABC 123 DESYGN ™
 
-- ABC 123 FILMS ™
+🌐 ABC 123 FILMS ™
 
 =============================================================
 
                      MAGENTRON
                      
-ARTIFICIAL INTELLIGENCE 2.0 ™ : IMAGINATION PROXIA C (IMAGE & VIDEO from text)
+🌐 ARTIFICIAL INTELLIGENCE 2.0 ™ : IMAGINATION PROXIA C (IMAGE & VIDEO from text)
 
 
 *️⃣📶🤖
